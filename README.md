@@ -1,3 +1,4 @@
 # Syljnl20230114
 pyth w ChetBaker
 Chet Baker was a primary exponent of the West Coast school of cool jazz in the early and mid-’50s. As a trumpeter, he had a generally restrained, intimate playing style and he attracted attention beyond jazz for his photogenic looks and singing. The family moved from Oklahoma to Glendale, CA, in 1940. He had his first formal training in music in junior high and later at Glendale High School. Baker initially played in Vido Musso ’s band, then with Stan Getz .
+All the Fine Young Cannibals, appeared with Robert Wagner in the starring role of Chad Bixby. Baker had become addicted to heroin in the 1950s and had been incarcerated briefly on several occasions, but his drug habit only began to interfere with his career significantly in the 1960s. He was arrested in Italy in the summer of 1960 and spent almost a year and a half in jail. He celebrated his release by recording Chet Is Back! for RCA in February 1962.
